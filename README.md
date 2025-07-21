@@ -1,12 +1,12 @@
-每日大赛最新地址👋（最新更新时间2025-7-14）
+每日大赛最新地址👋（最新更新时间2025-7-20）
 
-每日大赛最新网址：https://mrds43.com  请复制链接粘贴到浏览器
+每日大赛最新网址：https://mrds44.com  请复制链接粘贴到浏览器
 
-每日大赛备用线路1 https://mrds42.com  请复制链接粘贴到浏览器
+每日大赛备用线路1 https://mrds43.com  请复制链接粘贴到浏览器
 
 每日大赛永久地址（需科学⬆️网工具）https://mrdsk.com/  请复制链接粘贴到浏览器
 
-每日大赛官方QQ群:https://mrds43.com/?path=/qun.htmll  请复制链接粘贴到浏览器
+每日大赛官方QQ群:https://mrds44.com/?path=/qun.htmll  请复制链接粘贴到浏览器
 
 每日大赛TG官方群:https://t.me/mrdsfun_9
 
